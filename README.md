@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @Abhijithethyx
 - 👀 I’m interested in ... ETHICAL HACKING
-- 🌱 I’m currently learning ...IN 10TH STD 
-- 💞️ I’m looking to collaborate on ...nothing 
+- 🌱 I’m currently IN HIGH SCHOOL
+- MALAYALI HERE
+- REQUST ME FOR ANY KINDS OF SOFTWARES 
 - 📫 How to reach me ...kerala 
 
 <!---
